@@ -32,7 +32,10 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-The effect of a bill exhibited in Parliament by Sir Francis Englefield, Barronet1621Approx. 12 KB of
+
+1. The effect of a Bill exhibited in Parliament
+by Sir Francis Englefield Barronet.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
